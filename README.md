@@ -1,0 +1,1 @@
+# Efetiva_condominios
